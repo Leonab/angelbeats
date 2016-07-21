@@ -1,4 +1,3 @@
 angelbeats
 ==========
-
-Cooper Hack 2014
+Music surround sound
